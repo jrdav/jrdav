@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Joe Davidson
+- 📫 How to reach me joe.davidson.21111@gmail.com
